@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ploomy
+- 👀 I’m interested in manual testing and everything related to it
+- 🌱 Every day I am in the process of self-development in the direction I have chosen
+- 💞️ I’m looking to collaborate on in order to improve my professional level and gain experience
+- 📫 How to reach me: https://t.me/Ploomyya
+- ---
